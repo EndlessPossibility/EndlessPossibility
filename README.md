@@ -16,5 +16,5 @@
 [![](https://visitcount.itsvg.in/api?id=EndlessPossibility&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
-![rimuru-vs-hinata (1)](https://github.com/user-attachments/assets/a90ad322-39ec-4172-bf1b-ca8892ce92ef)
-![tumblr_14803b636c43415bf5a60fd0bf04ecb6_96c4f6b6_400](https://github.com/user-attachments/assets/fed5cabf-07f3-4c10-8e00-78b2c447e595)
+
+![tumblr_14803b636c43415bf5a60fd0bf04ecb6_96c4f6b6_400](https://github.com/user-attachments/assets/c823f07f-9e0c-4369-b25f-abb39d74a265)
