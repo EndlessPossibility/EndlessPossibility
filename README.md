@@ -18,3 +18,4 @@
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
 ![tumblr_14803b636c43415bf5a60fd0bf04ecb6_96c4f6b6_400](https://github.com/user-attachments/assets/c823f07f-9e0c-4369-b25f-abb39d74a265)
+![rimuru-vs-hinata (1)](https://github.com/user-attachments/assets/912769ca-04cb-4f3f-83b8-19efaaf6a271)
