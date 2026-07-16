@@ -1,5 +1,5 @@
 # 💫 About Me:
-😆 Just a 23 yo out of school guy try to make his github profile looks better.<br> 🦋 Try to re-learn my programmation basics from superior (idk what the equivalent for others countrys)<br>❗ i putted all the code languages i learned in my 1st year where i failed too, (except for java/type-script that i started them by myself).<br>😅 That's all about me...
+🦋 Try to re-learn my programmation basics from superior <br>❗ i putted all the code languages i learned in my 1st year where i failed too, (except for java/type-script that i started them by myself).<br>😅 That's all about me...
 
 
 ## 🌐 Socials:
