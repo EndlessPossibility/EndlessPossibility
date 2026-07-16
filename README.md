@@ -1,5 +1,5 @@
 # 💫 About Me:
-🦋 Try to re-learn my programmation basics from BTS SIO (HND equivalent) <br>⚠️ i put all the code languages i learned in my 1st year where i failed too, (except for java/type-script that i started them by myself).<br>😭 That's all about me... i need help pleeeeaaassseeee i beg fr 
+🦋 Try to re-learn my programmation basics from BTS SIO (HND equivalent) <br>⚠️ I put all the code languages i learned in my 1st year where i failed too, (except for java/type-script that i started them by myself).<br>😭 That's all about me... i need help pleeeeaaassseeee i beg fr 
 
 
 ## 🌐 Socials:
