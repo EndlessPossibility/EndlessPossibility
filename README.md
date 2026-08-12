@@ -1,5 +1,5 @@
 # 💫 About Me:
-🦋 Try to re-learn my programmation basics from BTS SIO (HND equivalent)
+🦋 Try to re-learn my programmation basics from BTS SIO (HND equivalent(except type/java script it's for made some personal presences with PreMid i hope))
 
 
 ## 🌐 Socials:
